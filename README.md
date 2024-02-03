@@ -1,1 +1,3 @@
-# jtskx
+👋 Hi, I’m @jtskxx
+
+building a brighter world...
